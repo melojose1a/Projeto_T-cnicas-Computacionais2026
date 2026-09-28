@@ -1,0 +1,1 @@
+# Projeto_T-cnicas-Computacionais2026
